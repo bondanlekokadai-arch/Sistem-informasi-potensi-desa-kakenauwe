@@ -1,0 +1,1 @@
+# Sistem-informasi-potensi-desa-kakenauwe
